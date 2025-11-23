@@ -12,4 +12,6 @@ Thanks and God Bless!
 
 "And he has a name written on his robe and on his thigh: 'King of Kings and Lord of Lords'."
 
-                                               - Revelation 19:16 (Christian Standard Bible)
+                                               - Revelation 19:16 (Christian Standard Bible
+
+https://x3n1thforlife.github.io/Ethical-Use-on-AI/
